@@ -5,4 +5,5 @@ I am confident that these samples showcase my ability to communicate technical i
 If you have any questions or need any clarifications please reach out to me at rashinahere@gmail.com
 
 Regards,
+
 Rashina
